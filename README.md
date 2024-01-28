@@ -1,1 +1,1 @@
-I hab whyred
+telegram: @fzr850
